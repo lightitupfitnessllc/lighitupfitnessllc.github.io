@@ -16,6 +16,4 @@ This program lasts for Lifetime and includes:
 
 That being said, this is for individuals that are committed to making a change aka Transform into the player you are meant to become!
 
-### Video
-
-https://youtube.com/playlist?list=PLmegMvA4TNd0rDHA8asqsUwXKL3L_UHin
+### [Video](https://youtube.com/playlist?list=PLmegMvA4TNd0rDHA8asqsUwXKL3L_UHin)
